@@ -1,0 +1,2 @@
+# TUGAS_UTS_EA.
+SADARI G.231.21.0071 Hafaz Rafsanjani Mubarok G.231.21.0146
